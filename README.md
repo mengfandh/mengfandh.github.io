@@ -1,4 +1,4 @@
-<h>萌翻导航最新网址发布页：</h>
+<h1>萌翻导航最新网址发布页：</h1>
 萌翻导航永久域名：https://xhydh123.com</br>
 萌翻导航最新域名：https://xhydh56.xyz</br>
 找不到最新地址，请发邮件baidu8869@gmail.com</br>
